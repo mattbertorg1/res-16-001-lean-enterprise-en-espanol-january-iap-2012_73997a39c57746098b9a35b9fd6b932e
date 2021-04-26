@@ -1,0 +1,1 @@
+# res-16-001-lean-enterprise-en-espanol-january-iap-2012_73997a39c57746098b9a35b9fd6b932e
